@@ -1,4 +1,4 @@
-# 
+# ultimate DaVinci Resolve for PC | DaVinci Resolve for Windows Addon | multi-cam-editing + timeline-editing offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for
 
 
 
